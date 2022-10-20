@@ -9,5 +9,6 @@
 - 知识服务平台：化繁为简从信息服务到知识服务。
 - 虚拟空间：数字孪生、元宇宙
 - 开放社区：开放知识管理社区DAO
+- 更多[关于社区](https://github.com/tfwai/tfw-community)
 
-期待合作！！！
+[期待合作！！！ ](http://xuejiai-org.mikecrm.com/Z5BuYsE)
