@@ -11,4 +11,6 @@
 - 开放社区：开放知识管理社区DAO
 - 更多[关于社区](https://github.com/tfwai/tfw-community)
 
-期待合作！！！ [点击加入](http://xuejiai-org.mikecrm.com/Z5BuYsE)
+期待合作！！！
+
+[点击加入](http://xuejiai-org.mikecrm.com/Z5BuYsE)
